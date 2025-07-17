@@ -1,2 +1,2 @@
 # Paktask-app
-Best earning app in Pakistan 
+Best online earning platform in Pakistan,
